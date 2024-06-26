@@ -8,7 +8,7 @@
 - https://rickgonzalezproperties.com/
 - https://themclendonteam.com/
 - https://maryannebeen.com/
-- ttps://staceyfarinacci.com/
+- https://staceyfarinacci.com/
 - https://robertrameyrealty.com/
 - https://jprealtor.us/
   
